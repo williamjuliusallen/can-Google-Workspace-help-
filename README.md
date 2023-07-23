@@ -1,0 +1,1 @@
+# can-Google-Workspace-help- I really need a place to re-establish a directory of historians of photography. Sounds petty. Right? Maybe. But the history of a thing that we make 8 billion a day of--well,it beats McDpnald's hamburgers. So anyway, try as I may I cannot get Google, Workspace or any other part of the Do No Evil Empire to help me. 
